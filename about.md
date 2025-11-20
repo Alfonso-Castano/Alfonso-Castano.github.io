@@ -42,4 +42,4 @@ Previously, I was a Research Scientist Intern at Spotify and worked with the UK 
 
 I'm a member of LISA (London Initiative for Safe AI) and enjoy playing trumpet in a funk band, running bouldering socials, and helping new climbers get certified.
 
-P.S. There are some easter eggs on this website - find one and drop the emoji in your email subject line!
+P.S. I'm Alfonso and I like this website
